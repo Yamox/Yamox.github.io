@@ -1,1 +1,0 @@
-# Yamox.github.io
